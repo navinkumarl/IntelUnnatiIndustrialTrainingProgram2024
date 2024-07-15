@@ -1,1 +1,0 @@
-# IntelUnnatiIndustrialTrainingProgram2024
